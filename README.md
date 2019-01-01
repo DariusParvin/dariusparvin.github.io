@@ -1,1 +1,0 @@
-# dariusparvin.github.io
